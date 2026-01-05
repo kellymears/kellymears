@@ -1,2 +1,3 @@
-[![Kelly's GitHub stats](https://github-readme-stats.vercel.app/api?username=kellymears&show_icons=true&theme=ambient_gradient)
-](https://gh-readme-profile.vercel.app/api?username=kellymears&theme=transparent)
+Nothing. Me? 
+
+Just hangin around.
